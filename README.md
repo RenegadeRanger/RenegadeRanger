@@ -1,4 +1,5 @@
-- who dis - @RenegadeRanger, or just "Renegade".
+- who dis - @RenegadeRanger, or just "Renegade". (She/her)
+- 
 
 <!---
 RenegadeRanger/RenegadeRanger is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
